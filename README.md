@@ -1,2 +1,2 @@
-# bg-jumpstyle-video
-Idk
+# ts is for rolocate only
+tbh ingore it pls
